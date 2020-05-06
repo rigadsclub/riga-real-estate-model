@@ -1,0 +1,1 @@
+# riga-real-estate-model
